@@ -16,4 +16,4 @@
  
 ---
 
-Adjunto link [[CUADERNO](https://notebook.google.com/notebook/dfb9243d-e62f-4233-8a61-1abaa46c1fcf))]
+Adjunto link [[CUADERNO](https://notebook.google.com/notebook/dfb9243d-e62f-4233-8a61-1abaa46c1fcf)]
